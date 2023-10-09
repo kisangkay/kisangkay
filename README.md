@@ -1,5 +1,5 @@
 - I’m Stephen Kipkemboi
-- Interested in Full stack development
+- Into Full stack development
 - To reach me send me an email at kaykisang@gmail.com
 
 <!---
